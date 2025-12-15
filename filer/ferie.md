@@ -1,4 +1,4 @@
-Ferie Feriedage
+Feriedage
 Efterårsferie 11. oktober – 19. oktober 2025
 Juleferie 20. december 2025 – 5. januar 2026
 Dimission januar 28. januar 2026
